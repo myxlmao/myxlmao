@@ -1,7 +1,7 @@
 # hi im pat! 
 
-im working on https://voltlet.co - charities and streamers working together, go live do good.
+im working on fledgy - redefining the way gcse education is done.
 
-contact: patryk@voltlet.co
+contact: @pattcodes on X
 
 have an amazing day
